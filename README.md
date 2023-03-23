@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Filipe and in 2022 after several years working in Marketing and Sales I decided to change my career in order to improve personal and professionaly.
+I'm Filipe and in 2022 after several years working in Marketing and Sales I decided to change my career in order to improve personaly and professionaly.
 
 So earlier in 2023 I started a 5 months code bootcamp in Mindera Code Academy and everything literaly changed for me. The pace was very fast, the learning rythm super intense, but the reward was just around the corner. I never in my dreams have imagined to learn so much in a short period of time!
 
